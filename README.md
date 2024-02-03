@@ -15,6 +15,10 @@ i am writing this bible long github to outbest sagyuo so plz vote me guys im bet
 - I don't use tone tags
 - basic dnis, if ur a proshitter youre a piece of a big poopy creeper minecraft explosion FART.
 
+  ![real](https://github.com/nastyoldhorse/nastyoldhorse/assets/155399375/e8d32cc0-27a5-4618-8550-cf83c46089c7)
+
+its me and gyu REAL
+
 **okay fr guys my DNI LIST. make sure you tuck your seatbelt in and grab a bucket of popcorn.**
 
 Alien vs. Predator
