@@ -1,7 +1,7 @@
 ✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪✧✪
 ![peeeeeeee](https://github.com/nastyoldhorse/nastyoldhorse/assets/155399375/592a1d8d-ab5d-4c63-a744-b19f9ecbb5a3)
 
-**BEFORE YOU INTERAC!!T**
+**BEFORE YOU INTERACT!!**
 
 ╰┈➤ i HATE everyone!! (joke) but i can come off as a little (unintentionally) mean if ur not into that
 
