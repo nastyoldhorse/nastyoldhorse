@@ -28,6 +28,7 @@
 ✧ basic dnis, if ur a proshitter youre a piece of a big poopy creeper minecraft explosion FART.
 
   ![real](https://github.com/nastyoldhorse/nastyoldhorse/assets/155399375/e8d32cc0-27a5-4618-8550-cf83c46089c7)
+
 **(its me and gyu REAL :3)**
 
 ╰┈➤ OH and for my interests: shonen anime, adult cartoons, comedy, lost media, true crime, art, music and genres like psychadelic rock, goth, new wave, emo, screamo, punk, grunge, jazz, hiphop, funk :3
